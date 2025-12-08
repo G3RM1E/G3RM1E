@@ -5,7 +5,7 @@
 
 
 > waterboy gif [artist](https://www.tumblr.com/zula3331).
-> usally afk, or just hanging out with friends. feel free to c+h. if you want my socials, ask :)
+> usally afk, or just hanging out with friends. feel free to c+h. if you want my socials, ask :) 💧💧💧💧
 
 
 
